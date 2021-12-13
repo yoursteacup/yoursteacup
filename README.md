@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yoursteacup
 - 👀 I’m interested in ... lots of stuff
-- 🌱 I’m currently learning ... how to make my computer mouse to attract cats
+- 🌱 I’m currently learning ... how to make my computer mouse attract cats
 - 💞️ I’m looking to collaborate on ... literally everything! Especially games...
 - 📫 How to reach me ... damelimm@gmail.com
 
